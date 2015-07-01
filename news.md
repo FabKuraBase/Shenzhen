@@ -1,7 +1,7 @@
 # 深センニュース
 ---
 <hr>
-創業板 http://www.szse.cn/main/chinext/ 1日の流通量 6兆円。
+創業板 http://www.szse.cn/main/chinext/ 1日の流通量 6兆円。482社。
 <hr>
 2015/6/25
 <hr>
