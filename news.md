@@ -5,6 +5,10 @@
 <hr>
 [【経済】中国：ファストリ製品生産の深セン慶盛で900人スト、工場移転に抗議](http://kabutan.jp/news/marketnews/?b=n201506170118)
 <hr>
+2015/5/29
+<hr>
+[中国：深セン住宅は最も高値、世帯年収倍率21.7倍に＝上海易居房地産](http://www.newsclip.be/article/2015/05/29/25822.html)
+<hr>
 2015/5/18
 <hr>
 [中国の都市競争力　深センが香港抜きトップに](http://www.focus-asia.com/socioeconomy/economy/418106/)
