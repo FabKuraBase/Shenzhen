@@ -1,6 +1,10 @@
 # 深センニュース
 ---
 <hr>
+2015/6/25
+<hr>
+[今年前半の世界のＩＰＯ、上海が首位　２位は香港](http://www.focus-asia.com/socioeconomy/economy/421684/)
+<hr>
 2015/6/17
 <hr>
 [【経済】中国：ファストリ製品生産の深セン慶盛で900人スト、工場移転に抗議](http://kabutan.jp/news/marketnews/?b=n201506170118)
