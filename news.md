@@ -9,6 +9,10 @@
 <hr>
 [【経済】中国：ファストリ製品生産の深セン慶盛で900人スト、工場移転に抗議](http://kabutan.jp/news/marketnews/?b=n201506170118)
 <hr>
+2015/6/10
+<hr>
+[対外開放と対内開放を目指す金融改革（２）＝関志雄](http://news.searchina.ne.jp/disp.cgi?y=2015&d=0610&f=business_0610_040.shtml)
+<hr>
 2015/6/5
 <hr>
 [中国が世界最大のIPO市場に　今年は米国上回る](http://jp.wsj.com/articles/SB11098407163782254164904581028640294780696)
