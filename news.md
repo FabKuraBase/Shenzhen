@@ -4,6 +4,10 @@
 <hr>
 [【経済】中国：ファストリ製品生産の深セン慶盛で900人スト、工場移転に抗議](http://kabutan.jp/news/marketnews/?b=n201506170118)
 <hr>
+2015/5/18
+<hr>
+[中国の都市競争力　深センが香港抜きトップに](http://www.focus-asia.com/socioeconomy/economy/418106/)
+<hr>
 2015/5/13
 <hr>
 [中国・深セン、漁村が金融都市に変貌　年内に香港ＧＤＰ抜く勢い (1/3ページ)](http://www.sankeibiz.jp/macro/news/150513/mcb1505130500015-n1.htm)
