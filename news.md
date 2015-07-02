@@ -20,6 +20,10 @@
 <hr>
 [対外開放と対内開放を目指す金融改革（２）＝関志雄](http://news.searchina.ne.jp/disp.cgi?y=2015&d=0610&f=business_0610_040.shtml)
 <hr>
+2015/6/8
+<hr>
+[『深圳の発展、香港の停滞』](http://www.sbi-com.jp/kitao_diary/archives/2015060810167.html)
+<hr>
 2015/6/5
 <hr>
 [中国が世界最大のIPO市場に　今年は米国上回る](http://jp.wsj.com/articles/SB11098407163782254164904581028640294780696)
