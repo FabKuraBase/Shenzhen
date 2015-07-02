@@ -3,6 +3,11 @@
 <hr>
 創業板 http://www.szse.cn/main/chinext/ 1日の流通量 6兆円。482社。
 <hr>
+<hr>
+2015/7/1
+<hr>
+[激しさを増す世界のドローン開発競争--市場規模と主要プレーヤー]()
+<hr>
 2015/6/25
 <hr>
 [今年前半の世界のＩＰＯ、上海が首位　２位は香港](http://www.focus-asia.com/socioeconomy/economy/421684/)
