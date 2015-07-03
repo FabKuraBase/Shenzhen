@@ -6,7 +6,7 @@
 <hr>
 2015/7/1
 <hr>
-[中国南方航空の国際定期便（茨城-深セン線）の就航について]()
+[中国南方航空の国際定期便（茨城-深セン線）の就航について](https://www.pref.ibaraki.jp/kikaku/kutai/riyo/abot-airport/sinsen.html)
 [激しさを増す世界のドローン開発競争--市場規模と主要プレーヤー](http://japan.cnet.com/sp/drone_market/35066353/)
 <hr>
 2015/6/25
